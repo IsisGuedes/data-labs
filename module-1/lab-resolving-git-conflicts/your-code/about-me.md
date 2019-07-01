@@ -1,1 +1,1 @@
-Meu nome √© Isis Ramos Guedes. Tenho 32 anos. Sou natural de Volta Redonda - RJ. Moro em S√£o Paulo desde 2013. Curso Gest√£o de TI na Universidade Anhembi Morumbi. Tenho um filho de 4 anos, o Sr Theo. E uma gata chamada Marie.
+Ol·! Meu nome È Isis. Tenho 32 anos. Sou natural de Volta Redonda - RJ. Moro em S„o Paulo desde 2013. Curso Gest„o de TI na Universidade Anhembi Morumbi. Tenho um filho de 4 anos, o Sr Theo. E uma gata chamada Marie.
